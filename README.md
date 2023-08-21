@@ -1,16 +1,15 @@
-### Hi there 👋
+### Tử Vi Đông A
 
-<!--
-**tuvidonga/tuvidonga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Tử Vi Đông A giới thiệu các bài viết liên quan đến tử vi và tâm linh với một kiến thức chuẩn nhất để giúp các bạn có thể dễ dàng tiếp cận. Bằng kinh nghiệm và không ngừng tìm hiểu kiến thức mới, tôi cam kết mang đến cho các bạn những thông tin hữu ích đồng thời liên tục cập nhật những kiến thức mới
 
-Here are some ideas to get you started:
+- Địa chỉ: Cổng Đình Bắc Lãm, Phú Lương, Hà Đông, Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0917150045
+
+- Website: https://tuvidonga.com/
+
+https://www.youtube.com/channel/UCELu_1bIgk3n3urLodCCfXg
+
+https://www.behance.net/tuvidonga/info
+
+https://www.pinterest.com/tuvidonga/
